@@ -1,1 +1,1 @@
-# SuttikanJungam.github.io
+# suttikanjungam.github.io
